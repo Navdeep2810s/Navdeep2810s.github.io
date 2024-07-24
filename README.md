@@ -7,4 +7,6 @@ The free Excel course from Great Learning was a game-changer, offering comprehen
 # Induction Program
 ## First Day of Induction Program at GNDEC
 The day begins with  Kirtan and Ardas at the College Gurudwara Sahib, setting a peaceful tone for what lay ahead. After a refreshing tea break, we gathered in the college auditorium for the inaugural ceremony. Before reaching the auditorium, the college provided us with a welcome letter, brochures, and other useful materials.
+
+
 The Student Induction Program is designed to help us transition smoothly into college life. Running from July 9th to July 27th, it includes various sessions aimed at familiarizing us with the college environment, academic structure, and essential life skills. It promises to be an enriching experience
